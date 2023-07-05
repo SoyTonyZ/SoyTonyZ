@@ -12,6 +12,8 @@ I'm a(an) ...
 
 - big fan of Queen, Bruno Mars and Jay Chou
 
+- player of Civlization VI, CS:GO, Minecraft, etc.
+
 - learner of English and Spanish
 
 However, just newbie in coding.
