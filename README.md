@@ -6,7 +6,7 @@ I'm a(an) ...
 
 - oier(OI stands for Olympiad in Informatics)
 
-- great fan of sports teams, epecially Los Angeles Lakers(a NBA team) and Manchester City(a Premier League team)
+- great fan of sports teams, epecially Los Angeles Lakers(an NBA team) and Manchester City(a Premier League team)
 
 - big fan of Detective Conan(a Japanese comic)
 
