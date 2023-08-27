@@ -12,7 +12,7 @@ I'm a(an) ...
 
 - big fan of Queen, Bruno Mars and Jay Chou
 
-- player of Civilization VI, Metro, Plants vs Zombies etc.
+- player of Civilization VI, Metro, Plants vs Zombies, and CS:GO etc.
 
 - learner of English and Spanish
 
