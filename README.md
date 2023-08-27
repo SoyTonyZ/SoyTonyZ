@@ -8,7 +8,7 @@ I'm a(an) ...
 
 - great fan of sports teams, epecially Los Angeles Lakers(an NBA team) and Manchester City(a Premier League team)
 
-- big fan of Detective Conan(a Japanese comic)
+- big fan of Detective Conan(an anime)
 
 - big fan of Queen, Bruno Mars and Jay Chou
 
